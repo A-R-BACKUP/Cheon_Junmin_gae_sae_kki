@@ -1,1 +1,1 @@
-# Cheon_Junmin_gae_sae_kki
+천준민 공부하라고 ㄹㅇㅋㅋ
